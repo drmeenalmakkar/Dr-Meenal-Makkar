@@ -2,7 +2,7 @@
 Dr. Meenal Makkar Dhawan, a leading Dermatologist in Mansarovar, Jaipur, offers expert skincare solutions with compassionate care. Trust her for personalized treatments and radiant, healthy skin.
 <a href="https://g.page/r/CdTa5zlte1owEB0">Dermatologist in Mansarovar Jaipur</a>: Expert skin specialist providing comprehensive dermatological solutions in Mansarovar, Jaipur.
 
-Skin Treatment in Jaipur: Advanced skin treatments addressing various skin conditions, ensuring healthier and radiant skin.
+<a href="https://g.page/r/CdTa5zlte1owEB0">Skin Treatment in Jaipur</a> : Advanced skin treatments addressing various skin conditions, ensuring healthier and radiant skin.
 
 Hair Loss Treatment in Mansarovar Jaipur: Specialized therapies and treatments to combat hair loss and promote hair regrowth in Mansarovar, Jaipur.
 
